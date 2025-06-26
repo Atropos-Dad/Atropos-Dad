@@ -11,6 +11,9 @@ My name is Jack ? Atropos-Dad (He/him, he/they)!
 
 If you want to chat, you can find me on linkedin [here](https://www.linkedin.com/in/jccasey/)! 
 
+You can find my personal site: jeaic.comc
+
+
 <!--
 **Atropos-Dad/Atropos-Dad** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
