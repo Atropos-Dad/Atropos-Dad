@@ -11,7 +11,7 @@ My name is Jack ? Atropos-Dad (He/him, he/they)!
 
 If you want to chat, you can find me on linkedin [here](https://www.linkedin.com/in/jccasey/)! 
 
-You can find my personal site: jeaic.comc
+You can find my personal site: jeaic.com
 
 
 <!--
