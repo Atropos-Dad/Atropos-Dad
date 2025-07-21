@@ -1,6 +1,6 @@
 ## Yellow!! 👋
 
-My name is Jack ? Atropos-Dad (He/him, he/they)! 
+My name is Jack ? Jeaic ? Atropos-Dad  (He/him, he/they)! 
 
 🌱 I’m currently studying software enginnering @ ISE UL
 
